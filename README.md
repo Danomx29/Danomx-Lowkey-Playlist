@@ -19,3 +19,5 @@ github.com/Danomx29/Danomx-Lowkey-Playlist
 
 
 https://drive.google.com/drive/folders/1n3K-ZPs5CUvv4cPzZZoCuW-MPEF31mUq
+
+https://chatgpt.com/share/69f81951-9b70-8320-867e-07e82b99b2e1
